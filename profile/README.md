@@ -14,6 +14,9 @@ Several more places of worship have been attacked and massacred since then and t
 > [!TIP]
 > The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future.
 
+> [!IMPORTANT]
+> The Creator is the only one who will ever hear a prayer uttered silently.
+
 ## Suggested Listening
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
      - This song takes you inside a massacre occurring in a place of worship.
@@ -29,11 +32,13 @@ The Creator that we work for is the very one who created life and the universe t
 The Creator has had numerous names since the dawn of mankind, currently his most popular names are Allah and God.
 
 > [!NOTE]
-> Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desiree or require worship, but appreciates all worship. The Creator knows that while in their respective place of worship, people are some of the most peaceful on the planet. For Him to see unarmed and peaceful peopl
+> Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desiree or require worship, but appreciates all worship.
 
-Regardless of what you call Him, or not, the Creator the only one who can ever hear your  prayers or read your mind. The Creator does not require worship but doesn't mind if you do.
-
+The Creator knows that while in their respective place of worship, people are some of the most peaceful on the planet. He was angered to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and kept quiet by the federal government with pressure on local and Commonwealth agencies. The genocide which was spawned in the coverup has infuriated Him.
+ 
 We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
+
+
 
 # Tonight's Events
 ## Earthquakes
