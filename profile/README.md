@@ -29,4 +29,8 @@ He gets beside himself though, as you have felt, when doves (peaceful people) ar
 
 We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
 
-# Welcome
+# Tonight's Events
+## Earthquakes
+We have previously listed the order and magnitude of the earthquake epicenters. The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
+
+
