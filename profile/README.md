@@ -1,6 +1,9 @@
 # Sound And Fury OPerationS (safops)
 This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm, called "The Sound and the Fury" and war against senseless death and those who support it.
 
+> [!CAUTION]
+> GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling.
+
 ## About The Sound and the Fury
 > [!TIP]
 > The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future.
@@ -36,5 +39,3 @@ We have previously listed the order and magnitude of the earthquake epicenters. 
 > [!IMPORTANT]
 > Timestamps can be modified and have been recently by the US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
 
-> [!CAUTION]
-> GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling.
