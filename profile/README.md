@@ -1,9 +1,15 @@
 # Sound And Fury OPerationS (safops)
 
-This organization is managed by the servants of the Creator and will provide information about the Creator's great storm and war against senseless death and those who support it.
+This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm and war against senseless death and those who support it.
 
-> [!CAUTION]
-> The servants of the Creator are being imitated and several access devices, keys, or passwords have been compromised, stolen or destroyed. Use caution when consuming information regarding the Creator's great storm.
+## About the Creator 
 
-> [!TIP]
-> The Creator will always validate His servants and verify anything that is attributed to us. Just pray to verify. 
+The Creator that we work for is the very one who created life and the universe that we all live it in. 
+
+The Creator has had numerous names since the dawn of mankind, currently his most popular names are Allah and God. Regardless of what you call Him, or not, the Creator the only one who can ever hear your  prayers or read your mind. The Creator does not require worship but doesn't mind if you do.
+
+He gets beside himself though, as you have felt, when doves (peaceful people) are made to cry.
+
+We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
+
+# Welcome
