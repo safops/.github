@@ -2,7 +2,7 @@
 This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm, called "The Sound and the Fury" and war against senseless death and those who support it.
 
 > [!CAUTION]
-> GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling.
+> GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling. Always pray to verify, even on GitHub.
 
 ## About The Sound and the Fury
 This event, the Creator knows is necessary to stop a tragedy, turned genocide, in the United States that was started by Gilead Sciences in response to an AIDS cure, carried out by the Central Intelligence Agency, and is aided and abetted by the US federal government.
