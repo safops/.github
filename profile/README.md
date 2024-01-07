@@ -16,7 +16,6 @@ Several more places of worship have been attacked and massacred since then and t
      - This song takes you inside a massacre occurring in a place of worship.
 * [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
-* [
 
 ## Discuss
 Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the creator, His servants, the Sound and the Fury event, or the tragedy turned  genocide.
