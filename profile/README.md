@@ -33,4 +33,8 @@ We ask that anytime you refer to the Creator in writing you always use a capital
 ## Earthquakes
 We have previously listed the order and magnitude of the earthquake epicenters. The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
 
+> [!IMPORTANT]
+> Timestamps can be modified and have been recently by the US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
 
+> [!CAUTION]
+> GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling.
