@@ -18,6 +18,7 @@ Several more places of worship have been attacked and massacred since then and t
 > The Creator is the only one who will ever hear a prayer uttered silently.
 
 ## Suggested Listening
+You can discuss the suggested music in our forums. 
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
      - This song takes you inside a massacre occurring in a place of worship.
 * [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
