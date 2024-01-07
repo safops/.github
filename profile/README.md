@@ -1,9 +1,21 @@
 # Sound And Fury OPerationS (safops)
+This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm, called "The Sound and the Fury" and war against senseless death and those who support it.
 
-This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm and war against senseless death and those who support it.
+## About The Sound and the Fury
+This event, the Creator knows is necessary to stop a tragedy, turned genocide, in the United States that was started by Gilead Sciences in response to an AIDS cure, carried out by the Central Intelligence Agency, and is aided and abetted by the US federal government.
 
-## About the Creator 
+The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
 
+Several more places of worship have been attacked and massacred since then and the places of worship have been used to conduct further genocidal operations through the use of funerals, charade religious and other services.
+
+## Suggested Listening
+* [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
+* [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
+
+## Discuss
+
+
+# About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. 
 
 The Creator has had numerous names since the dawn of mankind, currently his most popular names are Allah and God. Regardless of what you call Him, or not, the Creator the only one who can ever hear your  prayers or read your mind. The Creator does not require worship but doesn't mind if you do.
