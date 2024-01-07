@@ -12,11 +12,14 @@ The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, 
 Several more places of worship have been attacked and massacred since then and the places of worship have been used to conduct further genocidal operations through the use of funerals, charade religious and other services.
 
 ## Suggested Listening
+* [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
+     - This song takes you inside a massacre occurring in a place of worship.
 * [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
+* [
 
 ## Discuss
-
+Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the creator, His servants, the Sound and the Fury event, or the tragedy turned  genocide.
 
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. 
