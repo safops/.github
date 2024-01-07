@@ -49,9 +49,6 @@ The Creator knows that while in their respective place of worship, people are so
  
 We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
 
-# The Sound and the Fury Events
-
-
 > [!IMPORTANT]
 > We are using the earthquakes to authenticate ourselves on our new github.com organization. We recommend using the timestamps of the forum posts announcing each epicenter and earthquake.  Timestamps can be modified and have been recently by the CIA and US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
 
