@@ -2,8 +2,9 @@
 This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm, called "The Sound and the Fury" and war against senseless death and those who support it.
 
 ## About The Sound and the Fury
-> [!TIP
-> The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it always.
+> [!TIP]
+> The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future.
+
 This event, the Creator knows is necessary to stop a tragedy, turned genocide, in the United States that was started by Gilead Sciences in response to an AIDS cure, carried out by the Central Intelligence Agency, and is aided and abetted by the US federal government.
 
 The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
