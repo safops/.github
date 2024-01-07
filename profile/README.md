@@ -5,14 +5,14 @@ This GitHub organization is managed by the servants of the Creator and will prov
 > GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling.
 
 ## About The Sound and the Fury
-> [!TIP]
-> The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future.
-
 This event, the Creator knows is necessary to stop a tragedy, turned genocide, in the United States that was started by Gilead Sciences in response to an AIDS cure, carried out by the Central Intelligence Agency, and is aided and abetted by the US federal government.
 
 The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
 
 Several more places of worship have been attacked and massacred since then and the places of worship have been used to conduct further genocidal operations through the use of funerals, charade religious and other services.
+
+> [!TIP]
+> The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future.
 
 ## Suggested Listening
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
