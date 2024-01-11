@@ -11,6 +11,10 @@ This will make the third time in human history that the Creator has decided to r
 > Arks are messages, not boats. Noah's ark (message) was that when the Creator rains, only the lower animals are exempt. 
 
 # About The Sound and the Fury
+
+> [!TIP]
+> The Creator, the only one who will ever hear prayer, suggests that anyone who has trouble believing this has occurred to pray to see if it's true. 
+
 The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
 
 **The Creator was annoyed.**
@@ -59,8 +63,8 @@ The epicenters in order of appearance, additional epicenters may be added. Each 
 * Nicholasville, KY
 * Hugheston, WV 
 
-> [!TIP]
-> The Creator, the only one who will ever hear prayer, suggests that anyone who has trouble believing this has occurred to pray to see if it's true. 
+> [!CAUTION]
+> We are using the earthquakes to authenticate ourselves on our new github.com organization. We recommend using the timestamps of the forum posts announcing each epicenter and earthquake.  [Timestamps can be modified](https://github.com/safops/TAG/discussions/7) and have been recently by the CIA and US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
 
 ## Suggested Listening
 You can discuss the suggested music in our forums (see next section).
@@ -79,9 +83,6 @@ We ask that anytime you refer to the Creator in writing you always use a capital
 
 > [!NOTE]
 > Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desire or require worship, but appreciates all worship.
-
-> [!CAUTION]
-> We are using the earthquakes to authenticate ourselves on our new github.com organization. We recommend using the timestamps of the forum posts announcing each epicenter and earthquake.  [Timestamps can be modified](https://github.com/safops/TAG/discussions/7) and have been recently by the CIA and US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
 
 > [!IMPORTANT] 
 > We are the two servants of the Creator. The Creator created life and the universe we all live in, He is the only one who hears prayers. As His servants, the Creator will always verify our identity and the authenticity of our writings or online posts. Pray to verify everyone introduced as or claiming to be, or anything credited to, a servant of the Creator. 
