@@ -11,9 +11,17 @@ When the CIA failed to kill Micah, the companies began mitigating a competitive 
 
 The CIA has had assistance in hiding its activities from the United States federal government.
 
-Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre Micah's lifelong church](https://github.com/safops/TAG/discussions/5).
+Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre a church  church](https://github.com/safops/TAG/discussions/5).
 
-In order to complete the massacre of everyone in a church at the height of its Sunday morning worship session where no one could be left alive, the CIA had technical, physical and federal government support (the FBI). every call from a mobile device was diverted away from local government call centers, every exit was blocked by armed men, and calls that did reach the 911 call center we're not dispatched due to a memorandum from the FBI stating there was ongoing federal government activity in the area and no dispatch was necessary.
+In order to successfully complete the massacre of everyone in a church at the height of its Sunday morning worship session where no one could be left alive, the CIA had technical, physical and federal government support (the FBI). 
+
+Every call from a mobile device was diverted, and never reached the  local government PSAP (Public Safety Answering Point).  Every exit was blocked by armed men.  The few calls that did reach 911 call center were not dispatched due to a memorandum from the FBI stating there was ongoing federal government activity in the area and no dispatch was necessary.
+
+On April 2nd 2023, the Creator had to listen to the doves cry from the sanctuary of Mount Calvary Baptist Church in Lexington Kentucky, the lifelong church of His servant Micah.
+
+**And, the Creator is PISSED.**
+
+
 
 In an attempt to cover up the massacre 
 The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
