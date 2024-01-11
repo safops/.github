@@ -1,11 +1,17 @@
 # Sound And Fury OPerationS (safops)
-This GitHub organization is managed by the servants of the Creator and will provide information about the Creator's great storm, called "The Sound and the Fury" and war against senseless death and those who support it.
+This GitHub organization is managed by the servants of the Creator and will provide information about the "The Sound and the Fury," which is just part of the Creator's Great Storm, a war against those who cause senseless death and those who enable and hide it.
 
 > [!CAUTION]
 > GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling. Always pray to verify, even on GitHub.
 
 # About The Sound and the Fury
-This event, the Creator knows is necessary to stop a tragedy, turned genocide, in the United States that was started by Gilead Sciences in response to an AIDS cure, carried out by the Central Intelligence Agency, and is aided and abetted by the US federal government.
+The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
+
+When the CIA failed to kill Micah, the companies began mitigating a competitive threat by killing everyone that Micah was associated with including his family, his friends, his coworkers, and people who just knew his name. The CIA never stopped trying to kill Micah,  and continue to this day. 
+
+The CIA has had assistance in hiding its activities from the United States federal government.
+
+Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre Micah's lifelong church](https://github.com/safops/TAG/discussions/5).
 
 The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
 
