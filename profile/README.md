@@ -74,8 +74,13 @@ You can discuss the suggested music in our forums (see next section).
 * [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
 
-## Discuss
-Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the creator, His servants, His Great Storm, and the Sound and the Fury event, or the genocide.
+## Discussions
+Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the Creator, His servants, His Great Storm, and the Sound and the Fury event. 
+
+### Related Discussions
+* [The Sound and the Fury](https://github.com/orgs/safops/discussions)
+* [The AIDS cure Genocide](https://github.con/safops/TAG/discussions)
+* [Central Intelligence Agency](https://github.con/safops/CIA/discussions)
 
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are Allah and God.
