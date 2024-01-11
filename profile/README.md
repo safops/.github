@@ -7,9 +7,13 @@ This GitHub organization is managed by the servants of the Creator and will prov
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
 
+**The Creator was annoyed.**
+
 When the CIA failed to kill Micah, the companies began mitigating a competitive threat by killing everyone that Micah was associated with including his family, his friends, his coworkers, and people who just knew his name. The CIA never stopped trying to kill Micah,  and continue to this day. 
 
 The CIA has had assistance in hiding its activities from the United States federal government.
+
+**The Creator was frustrated.**
 
 Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre a church  church](https://github.com/safops/TAG/discussions/5).
 
@@ -19,19 +23,22 @@ Every call from a mobile device was diverted, and never reached the  local gover
 
 On April 2nd 2023, the Creator had to listen to the doves cry from the sanctuary of Mount Calvary Baptist Church in Lexington Kentucky, the lifelong church of His servant Micah.
 
-**And, the Creator is PISSED.**
+**The Creator was angry.**
 
+To hide the fact the massacre occurred, individuals who reported a  friend or family member missing after being killed at the church we're identified and killed themselves. The CIA does not believe in leaving anyone alive behind, so sometimes entire families or everyone living in the house were killed when the CIA personnel showed up. The CIA obtained copies of the missing person's reports from the FBI. 
 
+The CIA partially cleaned up the church and began holding charade services, anyone who came to the church were killed. 
 
-In an attempt to cover up the massacre 
-The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
+The CIA then began to announce funerals at the church for the victims of the massacre when people called The Church looking for their loved ones. on the day of the announced funeral, when mourners arrived they were murdered. 
 
-Several more places of worship have been attacked and massacred since then and the places of worship have been used to conduct further genocidal operations through the use of funerals, charade religious and other services.
+Other places of worship in central Kentucky were identified and then massacred after expressing concern. The CIA pressured law enforcement in Kentucky to ignore the numerous calls of concern and  not investigate any activity at places of worship. 
 
-> [!TIP]
-> The Creator, the only one who hears prayer, will verify His two servants, along with anything that we do.  We call this "pray to verify" and urge everyone to do it for the foreseeable future. The Creator is the only one who will ever hear a prayer uttered silently.
+The cycle continues and the genocide's death toll is growing exponentially greater with each passing day. 
 
-## Earthquakes
+**The Creator is furious.**
+
+## The Fury
+### Earthquakes
 We have previously listed the order and magnitude of the earthquake epicenters. The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
 
 ### Epicenters
