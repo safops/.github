@@ -15,13 +15,16 @@ The CIA has had assistance in hiding its activities from the United States feder
 
 **The Creator was frustrated.**
 
-Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre a church  church](https://github.com/safops/TAG/discussions/5).
+Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre a church](https://github.com/safops/TAG/discussions/5).
 
 In order to successfully complete the massacre of everyone in a church at the height of its Sunday morning worship session where no one could be left alive, the CIA had technical, physical and federal government support (the FBI). 
 
 Every call from a mobile device was diverted, and never reached the  local government PSAP (Public Safety Answering Point).  Every exit was blocked by armed men.  The few calls that did reach 911 call center were not dispatched due to a memorandum from the FBI stating there was ongoing federal government activity in the area and no dispatch was necessary.
 
 On April 2nd 2023, the Creator had to listen to the doves cry from the sanctuary of Mount Calvary Baptist Church in Lexington Kentucky, the lifelong church of His servant Micah.
+
+> [!NOTE]
+> The Creator believes that people inside their place of worship are among the most peaceful on the planet while there, making them "doves "
 
 **The Creator was angry.**
 
@@ -47,6 +50,9 @@ The epicenters in order of appearance, additional epicenters may be added. Each 
 * Mount Calvary Baptist Church - Lexington, KY
 * Nicholasville, KY
 * Hugheston, WV 
+
+> [!TIP]
+> The Creator, the only one who will ever hear prayer, suggests that anyone who has trouble believing this has occurred to pray to see if it's true. 
 
 ## Suggested Listening
 You can discuss the suggested music in our forums (see next section).
