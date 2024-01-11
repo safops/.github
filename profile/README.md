@@ -41,6 +41,8 @@ The cycle continues and the genocide's death toll is growing exponentially great
 **The Creator is furious.**
 
 ## The Fury
+It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
+
 ### Earthquakes
 We have previously listed the order and magnitude of the earthquake epicenters. The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
 
@@ -62,19 +64,15 @@ You can discuss the suggested music in our forums (see next section).
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
 
 ## Discuss
-Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the creator, His servants, the Sound and the Fury event, or the tragedy turned  genocide.
+Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the creator, His servants, His Great Storm, and the Sound and the Fury event, or the genocide.
 
 # About the Creator 
-The Creator that we work for is the very one who created life and the universe that we all live it in. 
+The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are Allah and God.
 
-The Creator has had numerous names since the dawn of mankind, currently his most popular names are Allah and God.
+We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
 
 > [!NOTE]
-> Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desiree or require worship, but appreciates all worship.
-
-The Creator knows that while in their respective place of worship, people are some of the most peaceful on the planet. He was angered to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and kept quiet by the federal government with pressure on local and Commonwealth agencies. The genocide which was spawned in the coverup has infuriated Him.
- 
-We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
+> Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desire or require worship, but appreciates all worship.
 
 > [!CAUTION]
 > We are using the earthquakes to authenticate ourselves on our new github.com organization. We recommend using the timestamps of the forum posts announcing each epicenter and earthquake.  [Timestamps can be modified](https://github.com/safops/TAG/discussions/7) and have been recently by the CIA and US government.  We recommend reloading the discussion forums often so that you can see which had the epicenter listed first.
