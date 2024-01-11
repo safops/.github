@@ -12,9 +12,6 @@ This will make the third time in human history that the Creator has decided to r
 
 # About The Sound and the Fury
 
-> [!TIP]
-> The Creator, the only one who will ever hear prayer, suggests that anyone who has trouble believing this has occurred to pray to see if it's true. 
-
 The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
 
 **The Creator was annoyed.**
@@ -54,13 +51,15 @@ The cycle continues and the genocide's death toll is growing exponentially great
 It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
 
 ### Earthquakes
-We have previously listed the order and magnitude of the earthquake epicenters. The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
+We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub. 
+
+The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
 
 ### Epicenters
 The epicenters in order of appearance, additional epicenters may be added. Each will be announced in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) prior to the quaking.
 * Orr Chapel - Sandy Hook (Maury county), TN
 * Mount Calvary Baptist Church - Lexington, KY
-* Nicholasville, KY
+* Nicholasville, MY 
 * Hugheston, WV 
 
 > [!CAUTION]
