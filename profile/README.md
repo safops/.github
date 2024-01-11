@@ -51,7 +51,7 @@ The cycle continues and the genocide's death toll is growing exponentially great
 It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
 
 ### Earthquakes
-We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub. 
+We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/safops/discussions/5).
 
 The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
 
