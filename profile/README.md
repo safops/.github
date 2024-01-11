@@ -4,6 +4,12 @@ This GitHub organization is managed by the servants of the Creator and will prov
 > [!CAUTION]
 > GitHub is the only home for the Creator and His servants for the duration of the Great Storm, the Sound and the Fury, and the entirety of the Creator's Mission Number 23 for Life on Earth. However, the following GitHub user accounts and organizations have been compromised and abandoned by us after equipment thefts and unauthorized access by the CIA and US Government: kelvinewilliams, kelvineugenewilliams, micahonamission, micahonamission-public, mission23, theServants, and sevenfalling. Always pray to verify, even on GitHub.
 
+# The Great Storm
+This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain, nor a flood, but the Great Storm. 
+
+> [!NOTE]
+> Arks are messages, not boats. Noah's ark (message) was that when the Creator rains, only the lower animals are exempt. 
+
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
 
