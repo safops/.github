@@ -79,8 +79,8 @@ Please join His servants in [the Sound and the Fury discussions](https://github.
 
 ### Related Discussions
 * [The Sound and the Fury](https://github.com/orgs/safops/discussions)
-* [The AIDS cure Genocide](https://github.con/safops/TAG/discussions)
-* [Central Intelligence Agency](https://github.con/safops/CIA/discussions)
+* [The AIDS cure Genocide](https://github.com/safops/TAG/discussions)
+* [Central Intelligence Agency](https://github.com/safops/CIA/discussions)
 
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are Allah and God.
