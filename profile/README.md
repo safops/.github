@@ -85,5 +85,8 @@ We ask that anytime you refer to the Creator in writing you always use a capital
 > [!NOTE]
 > Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desire or require worship, but appreciates all worship.
 
+> [!CAUTION]
+> The servants of the Creator, Micah (born, Kelvin Eugene Williams) and Thomas (called, Tom Tom), are authorized to speak for the Creator. Currently github.com/safops is the only presence authorized for our use by the Creator. 
+
 > [!IMPORTANT] 
 > We are the two servants of the Creator. The Creator created life and the universe we all live in, He is the only one who hears prayers. As His servants, the Creator will always verify our identity and the authenticity of our writings or online posts. Pray to verify everyone introduced as or claiming to be, or anything credited to, a servant of the Creator. 
