@@ -64,7 +64,7 @@ The epicenters in order of appearance, additional epicenters may be added. Each 
 * Hugheston, WV 
 
 > [!CAUTION]
-> We are using the earthquakes to authenticate ourselves on our new github.com organization. We will announce each earthquake before it happens in [The Sound and the Fury announcements[(https://github.com/orgs/safops/discussions/categories/announcements). Only the Creator can do such earthquakes, and only His two servants will have advanced knowledge of them. We expect the CIA and government to use stolen or illegally obtained credentials to launch misinformation campaigns. 
+> We are using the earthquakes to authenticate ourselves on our new github.com organization. We will announce each earthquake before it happens in [The Sound and the Fury announcements](https://github.com/orgs/safops/discussions/categories/announcements). Only the Creator can do such earthquakes, and only His two servants will have advanced knowledge of them. We expect the CIA and government to use stolen or illegally obtained credentials to launch misinformation campaigns. 
 We recommend using the timestamps of any posts announcing each epicenter and earthquake.  However, [timestamps can be modified](https://github.com/safops/TAG/discussions/7) and have been recently by the CIA and US government--reload frequently to see which appears first. 
 
 ## Suggested Listening
