@@ -13,6 +13,9 @@ The CIA has had assistance in hiding its activities from the United States feder
 
 Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre Micah's lifelong church](https://github.com/safops/TAG/discussions/5).
 
+In order to complete the massacre of everyone in a church at the height of its Sunday morning worship session where no one could be left alive, the CIA had technical, physical and federal government support (the FBI). every call from a mobile device was diverted away from local government call centers, every exit was blocked by armed men, and calls that did reach the 911 call center we're not dispatched due to a memorandum from the FBI stating there was ongoing federal government activity in the area and no dispatch was necessary.
+
+In an attempt to cover up the massacre 
 The coverup of the CIA's massacre of Mount Calvary Baptist Church in Lexington, Kentucky on April 2, 2023 evolved into a genocide. Mount Calvary Baptist Church is the lifelong church of His servant Micah, born Kelvin Eugene Williams, and his immediate family.
 
 Several more places of worship have been attacked and massacred since then and the places of worship have been used to conduct further genocidal operations through the use of funerals, charade religious and other services.
