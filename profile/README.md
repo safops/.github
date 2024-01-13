@@ -19,7 +19,7 @@ This will make the third time in human history that the Creator has decided to r
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/serviCreator/TAG).
 
-## About The AIDS cure Genocide (TAG)
+# About The AIDS cure Genocide (TAG)
 The genocide was started by Gilead Sciences in response to an unexpected cure of HIV. Gilead Sciences paid the CIA indirectly to kill the patient, Ken, and the Creator's servant, Micah, who provided the single-dose formulation designed by the Creator to Ken. 
 
 **The Creator was annoyed.**
