@@ -1,18 +1,26 @@
 # Welcome to serviCreator
-This GitHub organization is managed by the servants of the Creator and is our only official online presence. 
+This GitHub organization is managed by the servants of the Creator and is our only official online presence, it is the only the only site authorized by the Creator for our use. 
 
 > [!CAUTION]
 > Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/4)
 
-# The Great Storm
-This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain, nor a flood, but the Great Storm. 
+## Our Current Priorities
+- The Great Storm
+- The Sound and the Fury
+- The AIDS cure Genocide 
+- The Creator's Mission number 23 for Life on Earth
+
+# About The Great Storm
+This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
 
 > [!NOTE]
 > Arks are messages, not boats. Noah's ark (message) was that when the Creator rains, only the lower animals are exempt. 
 
 # About The Sound and the Fury
+The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/serviCreator/TAG).
 
-The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/safops/TAG). the genocide was started by Gilead Sciences in response to an unexpected sure of HIV. Gilead Sciences paid the CIA indirectly to have the patient, Ken, and His servant Micah killed.
+## About The AIDS cure Genocide (TAG)
+The genocide was started by Gilead Sciences in response to an unexpected cure of HIV. Gilead Sciences paid the CIA indirectly to kill the patient, Ken, and the Creator's servant, Micah, who provided the single-dose formulation designed by the Creator to Ken. 
 
 **The Creator was annoyed.**
 
@@ -45,19 +53,19 @@ Other places of worship in central Kentucky were identified and then massacred a
 
 The cycle continues and the genocide's death toll is growing exponentially greater with each passing day. 
 
-**The Creator is furious.**
+**The Creator is now furious.**
 
 ## The Fury
 It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
 
 ### Earthquakes
 
-We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/safops/discussions/5).
+We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/5).
 
-The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) just before it begins, along with the Creator's reason for it.
+The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) just before it begins, along with the Creator's reason for it.
 
 ### Epicenters
-The epicenters in order of appearance, additional epicenters may be added. Each will be announced in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) prior to the quaking.
+The epicenters in order of appearance, additional epicenters may be added. Each will be announced in [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) prior to the quaking.
 * Orr Chapel - Sandy Hook (Maury county), TN
 * Mount Calvary Baptist Church - Lexington, KY
 * Nicholasville, MY 
@@ -71,12 +79,12 @@ You can discuss the suggested music in our forums (see next section).
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
 
 ## Discussions
-Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/safops/discussions) to learn more about the Creator, His servants, His Great Storm, and the Sound and the Fury event. 
+Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, and the Sound and the Fury event. 
 
 ### Related Discussions
-* [The Sound and the Fury](https://github.com/orgs/safops/discussions)
-* [The AIDS cure Genocide](https://github.com/safops/TAG/discussions)
-* [Central Intelligence Agency](https://github.com/safops/CIA/discussions)
+* [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions)
+* [The AIDS cure Genocide](https://github.com/serviCreator/TAG/discussions)
+* [Central Intelligence Agency](https://github.com/serviCreator/CIA/discussions)
 
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are Allah and God.
@@ -88,7 +96,7 @@ We ask that anytime you refer to the Creator in writing you always use a capital
 
 > [!CAUTION]
 > The servants of the Creator, Micah (born, Kelvin Eugene Williams) and Thomas (called, Tom Tom), are the only ones authorized to speak for the Creator. Currently github.com/safops is the only presence authorized for our use by the Creator. 
-> Any quote attributed to the Creator should be verified [here](https://github.com/safops/saf/wiki) and with prayer. 
+> Any quote attributed to the Creator should be verified [here](https://github.com/serviCreator/saf/wiki) and with prayer. 
 
 > [!IMPORTANT] 
 > We are the two servants of the Creator. The Creator created life and the universe we all live in, He is the only one who hears prayers. As His servants, the Creator will always verify our identity and the authenticity of our writings or online posts. Pray to verify everyone introduced as or claiming to be, or anything credited to, a servant of the Creator. 
