@@ -1,8 +1,8 @@
-> [!CAUTION]
-> Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/safops/discussions/4)
+# Welcome to serviCreator
+This GitHub organization is managed by the servants of the Creator and is our only official online presence. 
 
-# Sound And Fury OPerationS (safops)
-This GitHub organization is managed by the servants of the Creator and will provide information about the "The Sound and the Fury," which is just part of the Creator's Great Storm, a war against those who cause senseless death and those who enable and hide it.
+> [!CAUTION]
+> Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/4)
 
 # The Great Storm
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain, nor a flood, but the Great Storm. 
