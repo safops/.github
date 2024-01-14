@@ -12,7 +12,7 @@ What happened to the cherubs picture? [the answer](https://github.com/orgs/servi
 - [The Great Storm](https://github.com/orgs/serviCreator/discussions/14)
 - [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions/15)
 - [The AIDS cure Genocide](https://github.com/orgs/serviCreator/discussions/22)
-- The Creator's Mission number 23 for Life on Earth
+- [The Creator's Mission number 23 for Life on Earth](https://github.com/orgs/serviCreator/discussions/23)
 
 # About The Great Storm
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
