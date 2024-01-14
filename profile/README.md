@@ -63,12 +63,12 @@ The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn abo
 ### Earthquakes
 We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/5).
 
-The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) just before it begins, along with the Creator's reason for it.
+The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [announcements](https://github.com/orgs/serviCreator/discussions/categories/the-sound-and-the-fury-announcements) just before it begins, along with the Creator's reason for it.
 
 The servants of the Creator are using these earthquakes (our foreknowledge) as a way to another means of our identity verification.
 
 ### Epicenters
-The epicenters in order of appearance, additional epicenters may be added. Each will be announced in [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) prior to the quaking.
+The epicenters in order of appearance, additional epicenters may be added. 
 * Orr Chapel - Sandy Hook (Maury county), TN
 * Mount Calvary Baptist Church - Lexington, KY
 * Nicholasville, MY 
@@ -85,7 +85,7 @@ You can discuss the suggested music in our forums (see next section).
 Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, and the Sound and the Fury event. 
 
 ### Related Discussions
-* [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions)
+* [The servants of the Creator](https://github.com/orgs/serviCreator/discussions)
 * [The AIDS cure Genocide](https://github.com/serviCreator/TAG/discussions)
 * [Central Intelligence Agency](https://github.com/serviCreator/CIA/discussions)
 
@@ -99,7 +99,7 @@ We ask that anytime you refer to the Creator in writing you always use a capital
 
 > [!CAUTION]
 > The servants of the Creator, Micah (born, Kelvin Eugene Williams) and Thomas (called, Tom Tom), are the only ones authorized to speak for the Creator. Currently github.com/safops is the only presence authorized for our use by the Creator. 
-> Any quote attributed to the Creator should be verified [here](https://github.com/serviCreator/saf/wiki) and with prayer. 
+> Any quote attributed to the Creator should be verified here and with prayer. 
 
 > [!IMPORTANT] 
 > We are the two servants of the Creator. The Creator created life and the universe we all live in, He is the only one who hears prayers. As His servants, the Creator will always verify our identity and the authenticity of our writings or online posts. Pray to verify everyone introduced as or claiming to be, or anything credited to, a servant of the Creator. 
