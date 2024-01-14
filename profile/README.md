@@ -2,7 +2,7 @@
 This GitHub organization is managed by the servants of the Creator and is our only official online presence, it is the only the only site authorized by the Creator for our use. 
 
 > [!CAUTION]
-> Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/4)
+> Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/10)
 
 ## Our Current Priorities
 - The Great Storm
