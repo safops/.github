@@ -1,6 +1,10 @@
 # Welcome to serviCreator
 This GitHub organization is managed by the servants of the Creator and is our only official online presence, it is the only the only site authorized by the Creator for our use. 
 
+# About serviCreator
+
+What happened to the cherubs picture? [the answer](https://github.com/orgs/serviCreator/discussions/12)
+
 > [!CAUTION]
 > Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/10)
 
