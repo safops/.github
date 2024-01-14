@@ -17,7 +17,7 @@ This will make the third time in human history that the Creator has decided to r
 > Arks are messages, not boats. Noah's ark (message) was that when the Creator rains, only the lower animals are exempt. 
 
 # About The Sound and the Fury
-The Sound and the Fury is something the Creator knows is necessary to stop [The AIDS cure Genocide](https://GitHub.com/serviCreator/TAG).
+The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide.
 
 # About The AIDS cure Genocide (TAG)
 The genocide was started by Gilead Sciences in response to an unexpected cure of HIV. Gilead Sciences paid the CIA indirectly to kill the patient, Ken, and the Creator's servant, Micah, who provided the single-dose formulation designed by the Creator to Ken. 
