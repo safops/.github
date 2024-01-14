@@ -61,7 +61,7 @@ It infuriates the Creator to see unarmed, peacefully assembled people massacred 
 The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn about the Creator and religion below.)
 
 ### Earthquakes
-We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/5).
+We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/9).
 
 The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [announcements](https://github.com/orgs/serviCreator/discussions/categories/the-sound-and-the-fury-announcements) just before it begins, along with the Creator's reason for it.
 
@@ -82,7 +82,7 @@ You can discuss the suggested music in our forums (see next section).
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
 
 ## Discussions
-Please join His servants in [the Sound and the Fury discussions](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, and the Sound and the Fury event. 
+Please join His servants in the [discussion forums](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, the Sound and the Fury event, and their upcoming mission.
 
 ### Related Discussions
 * [The servants of the Creator](https://github.com/orgs/serviCreator/discussions)
