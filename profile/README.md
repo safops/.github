@@ -9,9 +9,9 @@ What happened to the cherubs picture? [the answer](https://github.com/orgs/servi
 > Always #PrayToVerify any online post or presence that claims to be written or administered by one or both of the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/10)
 
 ## Our Current Priorities
-- The Great Storm
-- The Sound and the Fury
-- The AIDS cure Genocide 
+- [The Great Storm](https://github.com/orgs/serviCreator/discussions/14)
+- [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions/15)
+- [The AIDS cure Genocide](https://github.com/orgs/serviCreator/discussions/22)
 - The Creator's Mission number 23 for Life on Earth
 
 # About The Great Storm
