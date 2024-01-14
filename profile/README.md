@@ -83,6 +83,7 @@ You can discuss the suggested music in our forums (see next section).
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
      - This song takes you inside a massacre occurring in a place of worship.
 * [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
+* [A Mighty Leviathan of Old](https://youtu.be/JtvW2u-7x-A?si=K5lQZW1eUHpLroo2)
 * [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
 
 ## Discussions
