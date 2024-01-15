@@ -40,9 +40,6 @@ Every call from a mobile device was diverted, and never reached the  local gover
 
 On April 2nd 2023, the Creator had to listen to the doves cry from the sanctuary of Mount Calvary Baptist Church in Lexington Kentucky, the lifelong church of His servant Micah.
 
-> [!NOTE]
-> The Creator believes that people inside their place of worship are among the most peaceful on the planet while there, making them "doves " Now, listen to ["When the Doves Cry"](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO) again. 
-
 **The Creator was angry.**
 
 To hide the fact the massacre occurred, individuals who reported a  friend or family member missing after being killed at the church we're identified and killed themselves. The CIA does not believe in leaving anyone alive behind, so sometimes entire families or everyone living in the house were killed when the CIA personnel showed up. The CIA obtained copies of the missing person's reports from the FBI. 
