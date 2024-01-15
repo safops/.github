@@ -1,7 +1,7 @@
 # Welcome to serviCreator
 This GitHub organization is managed by the servants of the Creator and is our only official online presence, it is the only site authorized by the Creator for our use. 
 
-Missing our regular profile pic (the cherubs from the Sistine chapel)? Don't worry, it's temporary. [Learn why](https://github.com/orgs/serviCreator/discussions/12).
+Missing our regular profile pic (the cherubs from the Sistine chapel)? [Here's why it's different currently](https://github.com/orgs/serviCreator/discussions/12).
 
 > [!CAUTION]
 > https://github.com/serviCreator is the only site managed and used by the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/10)
