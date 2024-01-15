@@ -16,7 +16,7 @@ Missing our regular profile pic (the cherubs from the Sistine chapel)? Don't wor
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
 
 # About The Sound and the Fury
-The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide.
+The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide, it is just one part of His Great Storm. 
 
 It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
 
