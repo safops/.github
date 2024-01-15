@@ -46,6 +46,13 @@ The epicenters in order of appearance, additional epicenters may be added.
 * Nicholasville, MY 
 * Hugheston, WV
 
+### Suggested Listening
+* [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
+     - This song takes you inside a massacre occurring in a place of worship.
+* [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
+* [A Mighty Leviathan of Old](https://youtu.be/JtvW2u-7x-A?si=K5lQZW1eUHpLroo2)
+* [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
+
 # About The AIDS cure Genocide (TAG)
 The genocide was started by Gilead Sciences in response to an unexpected cure of HIV. Gilead Sciences paid the CIA indirectly to kill the patient, Ken, and the Creator's servant, Micah, who provided the single-dose formulation designed by the Creator to Ken. 
 
@@ -79,19 +86,17 @@ The cycle continues and the genocide's death toll is growing exponentially great
 
 **The Creator is now furious.**
 
-## Suggested Listening
-You can discuss the suggested music in our forums (see next section).
-* [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
-     - This song takes you inside a massacre occurring in a place of worship.
-* [The Sound and the Fury](https://music.youtube.com/watch?v=OpLeRY6NIhA&sq=1&si=aJ2WbH1E76IAFCqv)
-* [A Mighty Leviathan of Old](https://youtu.be/JtvW2u-7x-A?si=K5lQZW1eUHpLroo2)
-* [Sign of the Times](https://music.youtube.com/watch?v=hr3Dhjxk1Q4&sq=1&si=MJptCf3f9ssQjZdT)
+# Get Involved
+## Get Informed
+We invite you to become informed about the Creator, what we do as His servants, the tasks He has assigned to us for our upcoming mission, and the issues surrounding the mission.
 
-## Discussions
-Please join His servants in the [discussion forums](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, the Sound and the Fury event, and their upcoming mission.
+## Get The Word Out
+Tell everyone you know about TAG and share the link to this page ([https://github.com/serviCreator](https://github.com/serviCreator)).
 
-### Related Discussions
-* [The servants of the Creator](https://github.com/orgs/serviCreator/discussions)
+## Get Discussing 
+Join us in the [serviCreator discussion forums](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, the Sound and the Fury event, and our upcoming mission.
+
+### Other Discussion Forums 
 * [The AIDS cure Genocide](https://github.com/serviCreator/TAG/discussions)
 * [Central Intelligence Agency](https://github.com/serviCreator/CIA/discussions)
 
