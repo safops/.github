@@ -18,6 +18,24 @@ This will make the third time in human history that the Creator has decided to r
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide.
 
+It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
+
+The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn about the Creator and religion below.)
+
+### Earthquakes
+We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/9).
+
+The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [announcements](https://github.com/orgs/serviCreator/discussions/categories/the-sound-and-the-fury-announcements) just before it begins, along with the Creator's reason for it.
+
+The servants of the Creator are using these earthquakes (our foreknowledge) as a way to another means of our identity verification.
+
+### Epicenters
+The epicenters in order of appearance, additional epicenters may be added. 
+* Orr Chapel - Sandy Hook (Maury county), TN
+* Mount Calvary Baptist Church - Lexington, KY
+* Nicholasville, MY 
+* Hugheston, WV
+
 # About The AIDS cure Genocide (TAG)
 The genocide was started by Gilead Sciences in response to an unexpected cure of HIV. Gilead Sciences paid the CIA indirectly to kill the patient, Ken, and the Creator's servant, Micah, who provided the single-dose formulation designed by the Creator to Ken. 
 
@@ -51,24 +69,6 @@ The cycle continues and the genocide's death toll is growing exponentially great
 
 **The Creator is now furious.**
 
-## The Fury
-It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
-
-The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn about the Creator and religion below.)
-
-### Earthquakes
-We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/9).
-
-The order has not changed, however there are some new epicenters just added. We will post each epicenter in the [announcements](https://github.com/orgs/serviCreator/discussions/categories/the-sound-and-the-fury-announcements) just before it begins, along with the Creator's reason for it.
-
-The servants of the Creator are using these earthquakes (our foreknowledge) as a way to another means of our identity verification.
-
-### Epicenters
-The epicenters in order of appearance, additional epicenters may be added. 
-* Orr Chapel - Sandy Hook (Maury county), TN
-* Mount Calvary Baptist Church - Lexington, KY
-* Nicholasville, MY 
-* Hugheston, WV
 
 ## Suggested Listening
 You can discuss the suggested music in our forums (see next section).
