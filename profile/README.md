@@ -15,7 +15,8 @@ Missing our regular profile pic (the cherubs from the Sistine chapel)? [Here's w
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are: Allah and God.
 
-We ask that anytime you refer to the Creator in writing you always use a capital "C," and when discussing the Creator, you always clarify that it is the Creator with the "big C."  There are entities out there who are trying to confuse others as to who we work for.
+> [!TIP]
+> Anytime you refer to the Creator in writing you always use a capital "C." When talking about the Creator, you should clarify which by saying that it is the Creator with the "capital C" or "big C".
 
 > [!NOTE]
 > Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desire or require worship, but appreciates all worship.
