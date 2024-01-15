@@ -15,9 +15,6 @@ Missing our regular profile pic (the cherubs from the Sistine chapel)? Don't wor
 # About The Great Storm
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
 
-> [!NOTE]
-> Arks are messages, not boats. Noah's ark (message) was that when the Creator rains, only the lower animals are exempt. 
-
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide.
 
