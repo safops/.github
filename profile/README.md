@@ -41,7 +41,7 @@ Every call from a mobile device was diverted, and never reached the  local gover
 On April 2nd 2023, the Creator had to listen to the doves cry from the sanctuary of Mount Calvary Baptist Church in Lexington Kentucky, the lifelong church of His servant Micah.
 
 > [!NOTE]
-> The Creator believes that people inside their place of worship are among the most peaceful on the planet while there, making them "doves "
+> The Creator believes that people inside their place of worship are among the most peaceful on the planet while there, making them "doves " Now, listen to ["When the Doves Cry"](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO) again. 
 
 **The Creator was angry.**
 
