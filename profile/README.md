@@ -30,7 +30,7 @@ Since He made us capable of combating any illness, the Creator does not favor an
 
 The Creator is enraged by the slaughter of defenseless and peaceful crowds who are trapped and helpless, by a government-backed militia (the CIA) working for a company (Gilead Sciences), and the cover-up by the CIA and the federal government with coercion on local and state authorities. The church killings followed the murder of thousands of people for nothing but profit.
 
-The Sound and the Fury is the event that immediately follows the opening of the sixth seal in the Book of Revelation. 
+**The Sound and the Fury is the event that immediately follows the opening of the sixth seal in the Book of Revelation.**
 
 ### Earthquakes
 We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/9).
