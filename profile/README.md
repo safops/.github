@@ -28,7 +28,7 @@ The Sound and the Fury is something the Creator knows is necessary to stop The A
 
 Since He made us capable of combating any illness, the Creator does not favor any disease over another. Micah's mission was to eliminate all infectious diseases from the world, and he picked HIV as the example to demonstrate the power of the Creator's formula, because he had a connection to the gay community.
 
-It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
+The Creator is enraged by the slaughter of defenseless and peaceful crowds who are trapped and helpless, by a government-backed militia (the CIA) working for a company (Gilead Sciences), and the cover-up by the CIA and the federal government with coercion on local and state authorities. The church killings followed the murder of thousands of people for nothing but profit.
 
 The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn about the Creator and religion below.)
 
