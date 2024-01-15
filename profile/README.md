@@ -26,6 +26,8 @@ This will make the third time in human history that the Creator has decided to r
 # About The Sound and the Fury
 The Sound and the Fury is something the Creator knows is necessary to stop The AIDS cure Genocide, it is just one part of His Great Storm. 
 
+Since He made us capable of combating any illness, the Creator does not favor any disease over another. Micah's mission was to eliminate all infectious diseases from the world, and he picked HIV as the example to demonstrate the power of the Creator's formula, because he had a connection to the gay community.
+
 It infuriates the Creator to see unarmed, peacefully assembled people massacred with no ability to escape or summon help at the hands of a government paramilitary contractor (the CIA), on behalf of a corporation (Gilead Sciences), and the events kept quiet by the CIA and the federal government with pressure on local and Commonwealth agencies. 
 
 The Creator's Fury would be Seal 6 in the Bible's book of Revelation. (Learn about the Creator and religion below.)
