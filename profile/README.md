@@ -2,10 +2,10 @@
 We are the servants of the Creator and this is our home online.
 
 ## Our Current Priorities
-- [The Great Storm](https://github.com/orgs/serviCreator/discussions/14)
-- [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions/15)
 - [The AIDS cure Genocide](https://github.com/orgs/serviCreator/discussions/22)
 - [The Creator's Mission number 23 for Life on Earth](https://github.com/orgs/serviCreator/discussions/23)
+
+Our planned  [mission number 23](https://github.com/orgs/serviCreator/discussions/23)  has been preempted by the Creator for His [Great Storm](https://github.com/orgs/serviCreator/discussions/14).  You're probably here because you heard and felt [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions/15).
 
 # About the Creator 
 The Creator that we work for is the very one who created life and the universe that we all live it in. The Creator has had many names since the dawn of mankind, currently his most popular names are: Allah and God.
