@@ -42,7 +42,8 @@ The epicenters in order of appearance, additional epicenters may be added.
 * Nicholasville, MY 
 * Hugheston, WV
 
-We, the servants of the Creator are using these earthquakes (our foreknowledge) as an additional means of our identity verification.  It is impossible to predict an earthquake.  
+We, the servants of the Creator are using these earthquakes (our foreknowledge) as an additional means of our identity verification.  It is impossible to predict an earthquake.  The best verification done by [saying a prayer](https://github.com/orgs/serviCreator/discussions/10)
+🙏.
 
 ### Suggested Listening
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
