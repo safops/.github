@@ -1,10 +1,5 @@
 # Welcome to serviCreator
-This GitHub organization is managed by the servants of the Creator and is our only official online presence, it is the only site authorized by the Creator for our use. 
-
-Missing our regular profile pic (the cherubs from the Sistine chapel)? [Here's why it's different currently](https://github.com/orgs/serviCreator/discussions/12).
-
-> [!CAUTION]
-> https://github.com/serviCreator is the only site managed and used by the servants of the Creator. [more information](https://github.com/orgs/serviCreator/discussions/10)
+We are the servants of the Creator and this is our home online.
 
 ## Our Current Priorities
 - [The Great Storm](https://github.com/orgs/serviCreator/discussions/14)
@@ -23,6 +18,8 @@ The Creator that we work for is the very one who created life and the universe t
 
 # About His servants
 We are the servants of the Creator, Micah and Thomas. If you call the Creator Allah or God, we would be called angels. This is our 23rd mission on Earth. We are born here and are 100% human. 
+
+Missing our regular profile pic (the cherubs from the Sistine chapel)? [Here's why it's different currently](https://github.com/orgs/serviCreator/discussions/12).
 
 # About The Great Storm
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
