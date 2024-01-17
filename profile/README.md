@@ -21,6 +21,9 @@ The Creator that we work for is the very one who created life and the universe t
 > [!NOTE]
 > Our Boss prefers to be called, "The Creator," so that no preference is shown to a religion or set of beliefs and no endorsement can be inferred. The Creator does not desire or require worship, but appreciates all worship.
 
+# About His servants
+We are the servants of the Creator, Micah and Thomas. If you call the Creator Allah or God, we would be called angels. This is our 23rd mission on Earth. We are born here and are 100% human. 
+
 # About The Great Storm
 This will make the third time in human history that the Creator has decided to rain down His will. This will not be a simple rain event, nor a flood, but a Great Storm. 
 
