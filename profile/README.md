@@ -81,7 +81,7 @@ Other places of worship in central Kentucky were identified and then massacred a
 
 The CIA then began to announce funerals at the church for the victims of the massacre when people called The Church looking for their loved ones. on the day of the announced funeral, when mourners arrived they were murdered. 
 
-The cycle continues and the genocide's death toll is growing exponentially greater with each passing day. 
+The cycle continues and the genocide's death toll is growing larger with each passing day. 
 
 **The Creator is now furious.**
 
