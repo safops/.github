@@ -102,7 +102,7 @@ Tell everyone you know about TAG and share the link to this page ([https://githu
 Join us in the [serviCreator discussion forums](https://github.com/orgs/serviCreator/discussions) to learn more about the Creator, His servants, His Great Storm, the Sound and the Fury event, and our upcoming mission.
 
 ### Other Discussion Forums 
-* [The AIDS cure Genocide](https://github.com/serviCreator/TAG/discussions)
+* [The AIDS cure Genocide (TAG)](https://github.com/serviCreator/TAG/discussions)
 * [Central Intelligence Agency](https://github.com/serviCreator/CIA/discussions)
 
 > [!IMPORTANT] 
