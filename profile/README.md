@@ -31,6 +31,7 @@ The Creator is enraged by the slaughter of defenseless and peaceful crowds who a
 
 **The Sound and the Fury is the event that immediately follows the opening of the sixth seal in the Book of Revelation.**
 
+## What To Expect 
 ### Earthquakes
 We have previously listed the order, location and relative magnitude of the earthquake epicenters on [medium.com](https://medium.com/@theServantsoftheCreator/the-ringing-of-the-bell-392ea05ea8ee) and in several different repositories on GitHub, most recently [here](https://github.com/orgs/serviCreator/discussions/9).
 
@@ -41,6 +42,8 @@ The epicenters in order of appearance, additional epicenters may be added.
 * Mount Calvary Baptist Church - Lexington, KY
 * Nicholasville, MY 
 * Hugheston, WV
+
+There will be absolutely no injury or property damage from these earthquakes. The Creator knows how to do this. There will be tremendous damage to egos, careers, and some commercial and political institutions but only for those like Annie Jacobsen, the CIA, Gilead Sciences and the US federal government and others that have knowingly supported or helped hide the genocide.
 
 We, the servants of the Creator are using these earthquakes (our foreknowledge) as an additional means of our identity verification.  It is impossible to predict an earthquake.  The best verification done by [saying a prayer](https://github.com/orgs/serviCreator/discussions/10)
 🙏.
