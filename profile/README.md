@@ -1,3 +1,6 @@
+> [!CAUTION]
+> serviCreator is not intend for minors. Some content may contain obscenities, foul language, or be of a sexual or violent nature.
+***
 # Welcome to serviCreator
 We are the servants of the Creator and this is our home online.
 
