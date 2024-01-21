@@ -1,3 +1,6 @@
+> [!IMPORTANT] 
+> We are the two servants of the Creator. The Creator created life and the universe we all live in, He is the only one who hears prayers. As His servants, the Creator will always verify our identity and the authenticity of our writings or online posts. Pray to verify everyone introduced as or claiming to be, or anything credited to, a servant of the Creator.
+
 > [!CAUTION]
 > serviCreator is not intend for minors. Some content may contain obscenities, foul language, or be of a sexual or violent nature.
 ***
