@@ -46,7 +46,7 @@ The epicenters in order of appearance, additional epicenters may be added.
 * Nicholasville, MY 
 * Hugheston, WV
 
-There will be absolutely no injury or property damage from these earthquakes. The Creator knows how to do this. There will be tremendous damage to egos, careers, and some commercial and political institutions but only for those like Annie Jacobsen, the CIA, Gilead Sciences and the US federal government and others that have knowingly supported or helped hide the genocide.
+While the Creator will ensure that there is no injury or property damage from these earthquakes, there will be significant damage to egos, careers, and some commercial and political institutions. This damage will be limited to those who have knowingly supported or helped hide the genocide, such as Annie Jacobsen, the CIA, Gilead Sciences, and the US federal government.
 
 We, the servants of the Creator are using these earthquakes (our foreknowledge) as an additional means of our identity verification.  It is impossible to predict an earthquake.  The best verification done by [saying a prayer](https://github.com/orgs/serviCreator/discussions/10)
 🙏.
