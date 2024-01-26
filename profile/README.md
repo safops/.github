@@ -68,7 +68,7 @@ The CIA has had assistance in hiding its activities from the United States feder
 
 **The Creator was frustrated.**
 
-Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre a church](https://github.com/safops/TAG/discussions/5).
+Even after Micah identified himself to the CIA as a servant of the Creator in an attempt to stop the unwarranted murders and the CIA had plenty of evidence that he would not be killed because of the Creator, the CIA decided to [massacre Mount Calvary Baptist Church](https://github.com/safops/TAG/discussions/5).
 
 In order to successfully complete the massacre of everyone in a church at the height of its Sunday morning worship session where no one could be left alive, the CIA had technical, physical and federal government support (the FBI). 
 
