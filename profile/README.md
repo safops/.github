@@ -43,7 +43,7 @@ The order has not changed, however there are some new epicenters just added. We 
 The epicenters in order of appearance, additional epicenters may be added. 
 * Orr Chapel - Sandy Hook (Maury county), TN
 * Mount Calvary Baptist Church - Lexington, KY
-* Nicholasville, MY 
+* Nicholasville, KY 
 * Hugheston, WV
 
 While the Creator will ensure that there is no injury or property damage from these earthquakes, there will be significant damage to egos, careers, and some commercial and political institutions. This damage will be limited to those who have knowingly supported or helped hide the genocide, such as Annie Jacobsen, the CIA, Gilead Sciences, and the US federal government.
