@@ -3,6 +3,8 @@
 
 # GitHub Hit By Another NSL
 This org page may have links that are not functional.  We are working to restore currently. The government hit GitHub with another NSL forcing them to comply with their attempt to impersonate the Servants online during the Sound and the Fury. More to come! Always, always, Pray to Verify!
+
+To GitHub: You can believe that We know Californians don't like earthquakes. But you should find some relief after the first worldwide one ever! Hang in there, we will come visit and buy that enterprise account in person. Thanks!
 ***
 
 # Welcome to serviCreator
