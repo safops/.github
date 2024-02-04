@@ -56,7 +56,9 @@ The epicenters in order of appearance, additional epicenters may be added.
 
 While the Creator will ensure that there is no injury or property damage from these earthquakes, there will be significant damage to egos, careers, and some commercial and political institutions. This damage will be limited to those who have knowingly supported or helped hide the genocide, such as Annie Jacobsen, the CIA, Gilead Sciences, and the US federal government.
 
-We, as servants of the Creator, are using these earthquakes as an additional means of identity verification. It is impossible to predict an earthquake, but saying a prayer is the best way to verify our identity.
+We, as servants of the Creator, are using these earthquakes as an additional means of identity verification. It is impossible to predict an earthquake, but saying a prayer is the best way to verify our identity. 
+
+The US government issued an NSL in advance of the Sound and the Fury in concert with the use of stolen credentials by the CIA to impersonate the Servants online. We challenge any entity to do as we have and use the [commit logs](https://github.com/serviCreator/SAF/commits/master/) of a repository hosted on GitHub to announce the upcoming quakes. 
 
 ### Suggested Listening
 * [When the Doves Cry](https://music.youtube.com/watch?v=FcKE-1NlNlg&sq=1&si=hjLMmWdvKuSkXLyO)
