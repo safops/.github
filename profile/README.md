@@ -4,7 +4,7 @@
 # Welcome to serviCreator
 We are the servants of the Creator and this is our online home.
 
-Our planned  [mission number 23](https://github.com/orgs/serviCreator/discussions/23)  has been preempted by the Creator for His [Great Storm](https://github.com/orgs/serviCreator/discussions/14), His response to [The AIDS cure Genocide (TAG)](https://github.com/orgs/serviCreator/discussions/22) which includes the [massacres conducted by the CIA of places of worship](https://github.com/serviCreator/TAG/discussions/15) beginning with [the massacre of Mount Calvary Baptist Church](NSL_Hotfix/MMCBC.md) in Lexington, KY on April 2nd, 2023.
+Our planned  [mission number 23](https://github.com/orgs/serviCreator/discussions/23)  has been preempted by the Creator for His [Great Storm](https://github.com/orgs/serviCreator/discussions/14), His response to [The AIDS cure Genocide (TAG)](https://github.com/orgs/serviCreator/discussions/22) which includes the [massacres conducted by the CIA of places of worship](https://github.com/serviCreator/TAG/discussions/15) beginning with [the massacre of Mount Calvary Baptist Church](https://github.com/serviCreator/TAG/NSL_Hotfix/MMCBC.md) in Lexington, KY on April 2nd, 2023.
 
 You're probably here because you heard and felt [The Sound and the Fury](https://github.com/orgs/serviCreator/discussions/15).
 
