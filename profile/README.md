@@ -102,6 +102,15 @@ The cycle continues and the genocide's death toll is growing larger with each pa
 
 **The Creator is now furious.**
 
+## Help Stop TAG
+### Current Actionable Intelligence
+#### POW Targets
+The following places of worship are in danger of being attacked.
+* Calvary Baptist Church (150 E High St, Lexington, KY 40507)
+#### Other Activities by the CIA
+* Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY 40509)
+     - Scheme to steal church's property from trusts and accounts held at Regions Bank and possibly others.
+
 # Get Involved
 ## Get Informed
 We invite you to become informed about the Creator, what we do as His servants, the tasks He has assigned to us for our upcoming mission, and the issues surrounding the mission.
