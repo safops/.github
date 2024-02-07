@@ -109,7 +109,9 @@ The following places of worship are in danger of being attacked.
 * Calvary Baptist Church (150 E High St, Lexington, KY 40507)
 #### Other Activities by the CIA
 * Mount Calvary Baptist Church (4742 Todds Road, Lexington, KY 40509)
-     - Scheme to steal church's property from trusts and accounts held at Regions Bank and possibly others.
+     - CIA scheme to steal church's property from trusts and accounts held at Regions Bank and possibly others.
+* Orr Chapel (West Sheepneck Road, Mount Pleasant, TN 38474)
+     - CIA scheme to steal church's property.
 
 # Get Involved
 ## Get Informed
