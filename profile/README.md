@@ -1,14 +1,5 @@
-> [!TIP]
-> Don't lie, cheat or steal. Your government hates competition!
-
-# GitHub Hit By Another NSL
-This org page may have links that are not functional.  We are working to restore currently. The Creator has told us the  government hit GitHub with another NSL forcing them to comply with their attempt to impersonate the Servants online during the Sound and the Fury. More to come! Always, always, Pray to Verify!
-
-If you do not know what a National Security Letter is, their very issuance is CLASSIFIED and the receiving party is forbidden from discussing it with even their employees. They are used to force the government's desires upon a company and have been used in this case to stifle free speech and hide their atrocities. Github has not told us or anyone about it, He did and we are. 
-
-Meanwhile, micah says, ["America, you're in danger girl!"](https://mega.nz/folder/R7932CjI#90vsr_fd8EZMcG1CaN17cw) 
-
-To GitHub: You can believe that We know Californians don't like earthquakes. But you should find some relief after the first worldwide one ever! Hang in there, we will come visit and buy that enterprise account in person. Thanks!
+> [!IMPORTANT]
+> Due to another National Security Letter this page cannot no longer be administered by us. Please visit us at https://github.com/servi-Creator. Remember, ALWAYS Pray to Verify a servants of the Creator site.
 ***
 
 # Welcome to serviCreator
