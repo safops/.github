@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> Due to another National Security Letter this page cannot no longer be administered by us. Please visit us at https://github.com/servi-Creator. Remember, ALWAYS Pray to Verify a servants of the Creator site.
+> Due to another National Security Letter this page cannot no longer be administered by us and some links have been taken offline by GitHub to comply with the NSL. Please visit us at https://github.com/servi-Creator. Remember, ALWAYS Pray to Verify a servants of the Creator site.
 ***
 
 # Welcome to serviCreator
